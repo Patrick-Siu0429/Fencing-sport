@@ -1,4 +1,4 @@
-# Chi Kwong Siu (Patrick) Step 5
+# Chi Kwong Siu (Patrick) Step 6
 
 A Pen created on CodePen.
 
